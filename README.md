@@ -33,5 +33,5 @@ I love the journey of turning raw, complex data into meaningful stories and buil
 
 ---
 **Let's Connect!** 
-mariamemaracs@gmail.com 
+| mariamemaracs@gmail.com |
 07812875163
